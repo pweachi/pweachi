@@ -7,4 +7,6 @@
  
 —  @fawnshaveworms @curseoflove @Fufuyio1206 @May0nnais @eizoar
 
+— se7en , finfan , maxz , skittels , boo  
 
+luv u guys 
