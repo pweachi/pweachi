@@ -1,8 +1,8 @@
-ok I promise I'm half way finished but here's some infos abt me 
+haha hi I deleted my own readme so I'm making a new one but here's a short intro. AGAIN. 
 
-⠀⠀ ⠀⠀⠀⠀hi im momoko or cherie . close friends calls me sai or chi (only 6ums can call me cece) ⠀⠀ ⠀⠀⠀⠀I'm 17 
+I'm reign / ien. close ppl can call me rei 
 
-I like peaches  ⠀⠀ ⠀⠀⠀⠀i hv no dni becuz I block freely 
+I'm ftm. trans. and pansexual. yay
 
-⠀⠀ ⠀⠀⠀⠀I'm friendly and awesome 
-<img width="736" height="352" alt="1000368054" src="https://github.com/user-attachments/assets/d8f3c594-e52e-4237-9f89-01d1f252f6fa" />
+⠀⠀ ⠀⠀⠀dry but⠀I'm friendly and awesome 
+<img width="736" height="245" alt="1000374299" src="https://github.com/user-attachments/assets/cc3fd39d-fdf9-4788-9e0b-760308895350" />
